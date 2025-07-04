@@ -1,4 +1,7 @@
-## Hi , I'm Manasi 🌟
+![2GU](https://github.com/user-attachments/assets/64587dbc-17b1-49d3-bf00-0d11afa6634e)
+# Hi , I'm Manasi 🌟
+
+
 
 🎓 Computer science student at AIT Pune</br>
 😁 Passionate about building cool web stuff and learning the latest in tech<br>
