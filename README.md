@@ -1,5 +1,4 @@
 ## Hi , I'm Manasi 🌟
-file:///C:/Users/HP/Downloads/sayu-ogiwara-higehiro-moewalls-com.mp4
 
 🎓 Computer science student at AIT Pune</br>
 😁 Passionate about building cool web stuff and learning the latest in tech<br>
